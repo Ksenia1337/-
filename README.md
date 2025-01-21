@@ -1,6 +1,6 @@
 # Ксения Вербенко
 ## Фотография
-![](https://sun9-8.userapi.com/impg/AfB8ZD00ZNDjkcP9JiiljJ1nWpLsc7w_YVjSMQ/Ow3gXnKlNKo.jpg?size=960x1280&quality=95&sign=cc08935cfceb00cbb66e4a265967e899&type=album)
+![](blob:https://web.telegram.org/bbebbf49-109f-436f-8c3d-92c5608be7cc)
 
 ## Контактная информация
 
