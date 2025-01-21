@@ -1,4 +1,7 @@
 # Ксения Вербенко
+## Фотография
+![](![image](https://github.com/user-attachments/assets/9b3ea25f-01b7-4d8e-aa71-ed9e745909dd)
+)
 ## Контактная информация
 
 * *Email:* <ksenya.02.20061981@gmail.com>
