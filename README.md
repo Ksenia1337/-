@@ -1,6 +1,6 @@
 # Ксения Вербенко
 ## Фотография
-![](blob:https://web.telegram.org/bbebbf49-109f-436f-8c3d-92c5608be7cc)
+![](https://web.telegram.org/bbebbf49-109f-436f-8c3d-92c5608be7cc)
 
 ## Контактная информация
 
